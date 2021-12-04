@@ -1,3 +1,6 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is vivavictoria#4669
+
+
 # Tx Value Track Agent
 
 ## Description
